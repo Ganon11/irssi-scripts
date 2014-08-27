@@ -1,0 +1,1 @@
+Irssi is the best!
